@@ -1,2 +1,2 @@
 # nguta
-short &amp; sweet
+Tech &amp; Enthusiast
